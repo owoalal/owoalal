@@ -1,5 +1,6 @@
 # 💫 About Me:
-🔭 I’m currently working on making my life easier<br>🤝 I’m looking for help with python<br>🌱 I’m currently learning java<br>💬 Ask me about anything<br>⚡ Fun fact i love carrots
+🔭 I’m currently working on making my life easier<br>🤝 I’m looking for help with python<br>🌱 I’m currently learning java<br>💬 Ask me about anything<br>⚡ Fun fact i love carrots<br> Relax and take notes.<br> Ethical skills > illegal shortcuts.<br> Build a career, not a criminal record.
+
 
 
 ## 🌐 Socials:
